@@ -1,5 +1,3 @@
-Instagram Verified Badge 
- <br>      
 ╭━━╴ Get Verified on Instagram
 <br>
 ├  It is based on a form with a trick. (We fool the instagram support)
