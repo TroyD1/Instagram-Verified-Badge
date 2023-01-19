@@ -20,4 +20,4 @@
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img src="https://i.postimg.cc/zBSNHLw2/blue.jpg" alt="Trulli" width="239" height="332">
+<img src="https://i.postimg.cc/zBSNHLw2/blue.jpg" alt="Trulli" width="239" height="272">
