@@ -1,19 +1,15 @@
-🔥 Instagram Auto Report (By TroyDen) 🔥 
-       <br>
-       
-╭━━╴♻️ Upgrade 12.01.2023
+Instagram Verified Badge 
+ <br>      
+╭━━╴ Get Verified on Instagram
 <br>
-├  All users accounts is Update + Proxy.
+├  It is based on a form with a trick. (We fool the instagram support)
 <br>
-├  Over 700 k users active. 
-<br>
-├  Bot can report a account with max 3.4 M Followers.
-<br>
-├  It is very easy to use just by following the steps in the video on my channel.
+├  No Password Needed.
 <br>
 
  
  Telegram: 👉  https://t.me/troy_den
+ <br>
  
  Video:     https://t.me/InstagramReport1
  <br>
