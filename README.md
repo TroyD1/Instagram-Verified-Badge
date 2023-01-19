@@ -11,7 +11,7 @@ Instagram Verified Badge
  Telegram: 👉  https://t.me/troy_den
  <br>
  
- Video:     https://t.me/InstagramReport1
+ Video:     https://t.me/InstVerified
  <br>
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
