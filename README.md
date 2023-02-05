@@ -6,12 +6,11 @@
 <br>
 
  
- Telegram: 👉  https://t.me/troy_den
+ Telegram: 👉  https://t.me/sniper_spy
  <br>
- 
- Video:     https://t.me/InstVerified
+
  <br>
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img src="https://i.postimg.cc/zBSNHLw2/blue.jpg" alt="Trulli" width="239" height="262">
+<img src="https://i.postimg.cc/gjddZCDD/verisniper.jpg" alt="Trulli" width="239" height="262">
